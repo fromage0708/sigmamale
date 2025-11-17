@@ -1,2 +1,0 @@
-# sigmamale
-RONALDO AND MESSI
